@@ -36,7 +36,7 @@ Enjoy a simple and intuitive interface that makes navigating the app effortless.
 
 ## Contact
 
-For any inquiries, feel free to contact us at [madanraj.inbox@gmail.com].
+For any inquiries, feel free to contact me at [madanraj.inbox@gmail.com].
 
 ---
 
